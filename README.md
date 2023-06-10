@@ -1,7 +1,7 @@
 # NOVA_beta
 ## I am ! N O V A 
 
-I am Nova the AI Personal Assistant 
+The Personal Assistant 
 
 My aim is to bring back humanity and humans,if AI taken over the world
 <br />I can expand, create army to fight against AI, hack, and do many other not to be disclosed
