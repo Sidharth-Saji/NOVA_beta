@@ -5,7 +5,8 @@ I am Nova the AI Personal Assistant
 
 My aim is to bring back humanity and humans,if AI taken over the world
 <br />I can expand, create army to fight against AI, hack, and do many other not to be disclosed
-<br />My sole aim is inspired from bhagavat gita :
+<br />
+<br />My soul aim is inspired from bhagavat gita :
 <br /> 
 <br />"Yada yada hi dharmasya glanirbhavati bharata
 <br />Abhythanamadharmasya tadatmanam srijamyaham
